@@ -1,0 +1,1 @@
+standartnaya bekorchi letsenzya
